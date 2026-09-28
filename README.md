@@ -1,1 +1,1 @@
-# vanity-sniper-salvia-emirhan
+salviayla emirhan salaklarinin boost vs boklu kodlari kullananinda beynini skm
